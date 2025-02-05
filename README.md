@@ -1,1 +1,1 @@
-# Qua-n-li-chi-ti-u
+# Quan-li-chi-tieu
